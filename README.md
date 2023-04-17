@@ -3,3 +3,5 @@
 ### a. 🎮 - Loves to play Mobile Legends
 ### b. 🥰 - A hopeful romantic boy 
 ### c. 🐱 - cat lover
+### d. 🏐 - loves to play volleyball 
+### e. 🤡 - a humourous person but can't make himself happy
